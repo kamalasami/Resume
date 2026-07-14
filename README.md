@@ -2,7 +2,7 @@
 
 **Senior Engineering Manager | AI-First Engineering | Healthcare & Regulated Platforms**
 
-Brampton, ON, Canada · [LinkedIn](https://linkedin.com/in/kamalasami)
+Brampton, ON, Canada · [LinkedIn](https://linkedin.com/in/kamalasami) · [GitHub](https://github.com/kamalasami)
 
 📄 [Download resume (Word)](./Kamala_Ponnusami_Resume.docx)
 
